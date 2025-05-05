@@ -1,0 +1,1 @@
+# finm36700-homework-6-solved
